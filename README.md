@@ -1,0 +1,2 @@
+# BEAUTY
+rep class activites
